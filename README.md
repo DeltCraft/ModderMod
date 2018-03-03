@@ -1,2 +1,4 @@
-# ModderMod
-This is minecraft mod by me! for 1.12.2
+**MINECRAFT MOD 1.12.2** **(C)BY DELTWIN**
+**HELLO GUYS THIS** **MY 5 MODS OF MINECRAFT ENJOY!**
+**FOLLOW ME ON YOUTUBE**
+**FOLLOW ME ON TWITTER : DELTWIN**
